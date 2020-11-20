@@ -1,1 +1,2 @@
-Hello to all my peoples
+This is for my people, my party people
+This is for my people, come on
